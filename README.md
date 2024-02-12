@@ -9,8 +9,8 @@ Here are some ideas to get you started: -->
 - 🌱 I’m currently learning more about coding.
 - 👯 I’m looking to collaborate on future projects.
 - 🤔 I’m looking for help with backend coding.
-- 💬 Ask me about anything.
+- 💬 Ask me about my life.
 - 📫 How to reach me: email: rkcasipong.student@asiancollege.edu.ph
-- 😄 Pronouns: they/them
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: hmmm idk XD
 
